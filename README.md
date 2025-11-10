@@ -123,7 +123,4 @@ A desigualdade de gênero é mais expressiva entre a população preta, indicand
 📧 [amandabmendonca.contato@gmail.com](mailto:amandabmendonca.contato@gmail.com)  
 🔗 [LinkedIn](https://www.linkedin.com/in/amanda-mendonça-amura/)  
 
----
 
-> “Os dados contam histórias — e cada número é uma voz que precisa ser ouvida.”  
-> — *Amanda Mendonça (amura)*  
